@@ -1,4 +1,4 @@
-![3171d680-1d98-11ea-9bfd-51ba32490a41](https://github.com/jnana027/jnana027/assets/120124430/72f68e21-fbdd-4316-893d-271e5c26f085)
+[Add a heading.pdf](https://github.com/jnana027/jnana027/files/12136832/Add.a.heading.pdf)
  ### Hi  👋I am Jnanaranjan Pradhan
 
 <!--
