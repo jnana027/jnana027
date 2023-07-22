@@ -1,5 +1,5 @@
 ![3171d680-1d98-11ea-9bfd-51ba32490a41](https://github.com/jnana027/jnana027/assets/120124430/72f68e21-fbdd-4316-893d-271e5c26f085)
-### Hi there 👋
+### Hi  👋I am Jnanaranjan Pradhan
 
 <!--
 **jnana027/jnana027** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
